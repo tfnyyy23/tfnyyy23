@@ -11,5 +11,5 @@ Here are some projects I've been working on and contributing to:
 ---
 
 ### 📫 Let's Connect!
-- Instagram: [@tfnyfdllh](https://instagram.com/tifadilayah)
-- LinkedIn: [Tifani Fadillah](https://www.linkedin.com/in/tifany-fadilah-ahnaf/)
+- Instagram: [@tifadilayah](https://instagram.com/tifadilayah)
+- LinkedIn: [Tifany Fadilah](https://www.linkedin.com/in/tifany-fadilah-ahnaf/)
